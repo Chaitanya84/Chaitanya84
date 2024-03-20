@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **aelien@outlook.com**
 
-- ⚡**(2B) || (!2B)**
+- ⚡ **(2B) || (!2B)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
