@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **aelien@outlook.com**
 
-- ⚡ Fun fact **I use AI to create function and i just integrate it on all my github repo.**
+- ⚡ Fun fact **(2B) || (!2B)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
